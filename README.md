@@ -23,6 +23,7 @@ Azerbaijani.
 
 - Product information: [ineanplay.com](https://ineanplay.com/)
 - Technical support: [service@ineanplay.com](mailto:service@ineanplay.com)
+- WhatsApp: [+86 173 7839 0199](https://wa.me/8617378390199)
 - Current availability: see the official website or contact INEAN PLAY directly
 
 ---
